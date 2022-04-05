@@ -1,1 +1,1 @@
-![ss](l4 twoactivities.jpg)
+![ss](twoactivities.jpg)
