@@ -1,4 +1,3 @@
 HOMEWORK
-![image](hh.png)
-![image](h1.png)
-![video](twohome.gif)
+![image](l4twoactivitieshomework.jpg)
+![image](l4twoactivitieshomework2.jpg)
